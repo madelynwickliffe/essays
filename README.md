@@ -1,2 +1,30 @@
-# essays
-Juncture visual essays
+**IAGO** </br>
+That Cassio loves her, I do well believe ’t. </br>
+That she loves him, ’tis apt and of great credit. </br>
+The Moor, howbeit that I endure him not, </br>
+Is of a constant, loving, noble nature, </br>
+And I dare think he’ll prove to Desdemona </br>
+A most dear husband. Now, I do love her too, </br>
+Not out of absolute lust (though peradventure </br>
+I stand accountant for as great a sin) </br>
+But partly led to diet my revenge </br>
+For that I do suspect the lusty Moor </br>
+Hath leaped into my seat—the thought whereof </br>
+Doth, like a poisonous mineral, gnaw my inwards, </br>
+
+
+And nothing can or shall content my soul </br>
+Till I am evened with him, wife for wife, </br>
+Or, failing so, yet that I put the Moor </br>
+At least into a jealousy so strong </br>
+That judgment cannot cure. Which thing to do, </br>
+If this poor trash of Venice, whom I trace </br>
+For his quick hunting, stand the putting on, </br>
+I’ll have our Michael Cassio on the hip, </br>
+Abuse him to the Moor in the rank garb </br>
+(For I fear Cassio with my nightcap too), </br>
+Make the Moor thank me, love me, and reward me </br>
+For making him egregiously an ass </br>
+And practicing upon his peace and quiet </br>
+Even to madness. ’Tis here, but yet confused. </br>
+Knavery’s plain face is never seen till used. </br>
